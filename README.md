@@ -1,6 +1,6 @@
 ### Hi there 👋 
 
- ✨ ✨ btw, my dream job is to be a business analyst hmu hmu
+ ✨ ✨ nothing more than a coding account
 
  ✨ ✨ https://www.linkedin.com/in/minhhi68
 
